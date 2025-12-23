@@ -3,7 +3,9 @@
   "id": "AI-1005",
   "title": "Untitled",
   "created": "2025-12-22T22:55:56.828Z",
-  "labels": [],
+  "labels": [
+    "test"
+  ],
   "relationships": []
 }
 -->
