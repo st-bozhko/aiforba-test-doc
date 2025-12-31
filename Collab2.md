@@ -4,5 +4,11 @@
   "created": "2025-12-30T22:33:43.009Z"
 }
 -->
+<!-- metadata
+{
+  "id": "DOC-21",
+  "created": "2025-12-30T22:33:43.009Z"
+}
+-->
 # New File
 Start writing...
