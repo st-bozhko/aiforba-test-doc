@@ -15,3 +15,5 @@ test commit
 testing
 
 test collab testing issue #10
+
+test collab via global SSH key
