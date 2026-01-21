@@ -14,3 +14,63 @@ I'm editing 3
 
 dsfsdfsdfasdsadasdwasd waasdasfaefasdfaefasdfaefgsdgaeafaeewafwfawefwfea
 asdafafsafasdasdasdasdasdasdasdasdasdasdasd
+
+asdaaweawewefasdasdasd asdawd asdw ad awasd awdsad wasdwasdwadadad# New File
+Start writing...
+asdasdasd
+I'm editing 3
+
+dsfsdfsdfasdsadasdwasd waasdasfaefasdfaefasdfaefgsdgaeafaeewafwfawefwfea
+asdafafsafasdasdasdasdasdasdasdasdasdasdasd
+
+asdaaweawewefasdasdasd asdawd asdw ad awasd awdsad wasdwasdwadadad# New File
+Start writing...
+asdasdasd
+I'm editing 3
+
+dsfsdfsdfasdsadasdwasd waasdasfaefasdfaefasdfaefgsdgaeafaeewafwfawefwfea
+asdafafsafasdasdasdasdasdasdasdasdasdasdasd
+
+asdaaweawewefasdasdasd asdawd asdw ad awasd awdsad wasdwasdwadadad# New File
+Start writing...
+asdasdasd
+I'm editing 3
+
+dsfsdfsdfasdsadasdwasd waasdasfaefasdfaefasdfaefgsdgaeafaeewafwfawefwfea
+asdafafsafasdasdasdasdasdasdasdasdasdasdasd
+
+asdaaweawewefasdasdasd asdawd asdw ad awasd awdsad wasdwasdwadadad# New File
+Start writing...
+asdasdasd
+I'm editing 3
+
+dsfsdfsdfasdsadasdwasd waasdasfaefasdfaefasdfaefgsdgaeafaeewafwfawefwfea
+asdafafsafasdasdasdasdasdasdasdasdasdasdasd
+
+asdaaweawewefasdasdasd asdawd asdw ad awasd awdsad wasdwasdwadadad# New File
+Start writing...
+asdasdasd
+I'm editing 3
+
+dsfsdfsdfasdsadasdwasd waasdasfaefasdfaefasdfaefgsdgaeafaeewafwfawefwfea
+asdafafsafasdasdasdasdasdasdasdasdasdasdasd
+
+asdaaweawewefasdasdasd asdawd asdw ad awasd awdsad wasdwasdwadadad# New File
+Start writing...
+asdasdasd
+I'm editing 3
+
+dsfsdfsdfasdsadasdwasd waasdasfaefasdfaefasdfaefgsdgaeafaeewafwfawefwfea
+asdafafsafasdasdasdasdasdasdasdasdasdasdasd
+
+asdaaweawewefasdasdasd asdawd asdw ad awasd awdsad wasdwasdwadadad# New File
+Start writing...
+asdasdasd
+I'm editing 3
+
+dsfsdfsdfasdsadasdwasd waasdasfaefasdfaefasdfaefgsdgaeafaeewafwfawefwfea
+asdafafsafasdasdasdasdasdasdasdasdasdasdasd
+
+asdaaweawewefasdasdasd asdawd asdw ad awasd awdsad wasdwasdwadadad
+
+test decomposition
